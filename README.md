@@ -1,1 +1,3 @@
-### Hola 😜👋
+### Juan Avero :wave:
+## JR Developer 
+
