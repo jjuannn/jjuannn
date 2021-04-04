@@ -1,3 +1,2 @@
-### Juan Avero :wave:
-## JR Developer 
+### Juan Avero - Jr Web Developer 
 
