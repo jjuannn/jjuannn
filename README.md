@@ -1,4 +1,4 @@
-### Juan Avero - 🇦🇷 - Web Developer - React JS
+### Juan Avero - 🇦🇷 - React Web Developer
 
 - 17 years old. :star:
 - I like computers and related things. :computer:
